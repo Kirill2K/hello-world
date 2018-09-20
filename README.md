@@ -2,4 +2,4 @@
 
 Hi guys!
 
-K2k is here, so im going to progrmming in a few weeks!
+K2k is here, so im will progrmming in a few weeks!
